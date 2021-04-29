@@ -1,0 +1,2 @@
+# How-to-Setup-Roku-Premiere
+Today, Roku Premiere has become one of the best streaming devices which is providing excellent streaming. The device is cheaper and has amazing functionality. For those users who love to watch the live contents can access the channels such as Hulu, Netflix, Amazon, Watch ESPN and a few more on the Roku device. Before moving further to know how to setup roku premiere device, let’s get to know a little bit about Roku.
